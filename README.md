@@ -9,7 +9,7 @@ Curso Explorer RocketSeat.
 
 >>Para acessar  https://cristina-mota.github.io/ice-cream-mobile/
 
->>Contado cm.crismota@gmail.com
+>>Contato cm.crismota@gmail.com
 
 
 
